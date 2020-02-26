@@ -21,4 +21,5 @@ https://www.aliexpress.com/item/33034926704.html?spm=a2g0o.productlist.0.0.760e1
 https://www.aliexpress.com/item/32947209170.html?spm=a2g0o.productlist.0.0.1e9a6abdkBkfsd&algo_pvid=7fae8246-7bd9-441e-bf63-578346985450&algo_expid=7fae8246-7bd9-441e-bf63-578346985450-3&btsid=70b75ce
 
 6)
-https://www.aliexpress.com/item/4000263321887.html?spm=a2g0o.productlist.0.0.325d1133NzjJum&algo_pvid=d725036b-95c5-4273-930b-d7314b56f22f&algo_expid=d725036b-95c5-4273-930b-d7314b56f22f-0&btsid=91dcf3e5-93bd-442a-9179-b6f1a1429a03&ws_ab_test=searchweb0_0,searchweb201602_6,searchweb201603_55
+Wireless Charging for circuit
+https://www.aliexpress.com/item/4000088419515.html?spm=a2g0o.productlist.0.0.48955aean9Fv2f&algo_pvid=9ba13851-90b7-4d52-b48b-a98ab38bd316&algo_expid=9ba13851-90b7-4d52-b48b-a98ab38bd316-3&btsid=0ab6fb8815827574528695991e9a20&ws_ab_test=searchweb0_0,searchweb201602_,searchweb201603_
